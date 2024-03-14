@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rudraksha-Das
+- 👋 Hi, I’m Rudra Das
 - 👀 I’m interested in Science and technology, Web development
 - 🌱 I’m currently learning Java, HTML, JS, CSS, C#....
 - 💞️ I’m looking to collaborate on Machine Learning, However, I will be happy to collaborate in small projects too!
