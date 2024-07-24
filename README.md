@@ -18,7 +18,7 @@ Age is just a number. I am not even 16, yet I have such achievements in my bucke
 
 BugCrowd Account: <a href="https://bugcrowd.com/RudraD">RudraD</a>
 
-<img src=x onerror=alert('You are hacked!')>
+<script>alert('hello');</script>
 <!---
 Rudraksha-Das/Rudraksha-Das is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
