@@ -13,12 +13,13 @@ Saved a health department websites belonging to Government of India from a major
 
 Age is just a number. I am not even 16, yet I have such achievements in my bucket.
 
+![791762](https://github.com/user-attachments/assets/1f7ac222-c881-49b4-b1ae-6dbb56661858)
 
 <br>
 
 BugCrowd Account: <a href="https://bugcrowd.com/RudraD">RudraD</a>
 
-<script>alert('hello');</script>
+<img src=>
 <!---
 Rudraksha-Das/Rudraksha-Das is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
