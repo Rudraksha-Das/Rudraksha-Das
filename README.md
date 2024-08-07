@@ -5,7 +5,7 @@ Whether you are a human or bot, it doesn't matter.<br>
 `rm-rf💣(￣_,￣ )`<br>
 I’m Rudra Das from India.<br>
 `<img src=x onerror=alert(document.domain)>(～￣▽￣)～🙂`<br>
-I’m interested in Science and technology, Web development and lerning new things from any where.<br>
+I’m interested in Science and technology, Web development and learning new things from any where.<br>
 `?msg=ConetntSpoofed📝`<br>
 I was initially interested in AI and Machine Learning, but I dont know how I became a cybersecurity researcher instead of data scientist.<br>
 `import tensorflow as tf＜（＾－＾）＞🤔`<br>
