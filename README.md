@@ -1,3 +1,6 @@
+![791762](https://media.licdn.com/dms/image/C4E22AQE-ccTz_-kB9Q/feedshare-shrink_800/0/1629313666431?e=2147483647&v=beta&t=2KqGVADwNvRzK0p5jGpAfDbJ86gt_G1dhGl-4fu7xjc)
+
+
 Whether you are a human or bot, it doesn't matter.<br>
 `rm-rf💣(￣_,￣ )`<br>
 I’m Rudra Das from India.<br>
@@ -17,7 +20,7 @@ Age is just a number. I am not even 16, yet I have such achievements in my bucke
 <br>
 BugCrowd Account: <a href="https://bugcrowd.com/RudraD">RudraD</a><br>
 
-![791762](https://media.licdn.com/dms/image/C4E22AQE-ccTz_-kB9Q/feedshare-shrink_800/0/1629313666431?e=2147483647&v=beta&t=2KqGVADwNvRzK0p5jGpAfDbJ86gt_G1dhGl-4fu7xjc)
+
 
 <br>
 
