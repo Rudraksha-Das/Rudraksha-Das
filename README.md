@@ -1,4 +1,4 @@
-![791762](https://media.licdn.com/dms/image/C4E22AQE-ccTz_-kB9Q/feedshare-shrink_800/0/1629313666431?e=2147483647&v=beta&t=2KqGVADwNvRzK0p5jGpAfDbJ86gt_G1dhGl-4fu7xjc)
+![Hacker](https://c.tenor.com/Zp9f2I9FpFcAAAAd/tenor.gif)
 
 
 Whether you are a human or bot, it doesn't matter.<br>
