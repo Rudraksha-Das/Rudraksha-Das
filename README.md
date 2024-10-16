@@ -1,5 +1,7 @@
-![Hacker](https://www.icegif.com/wp-content/uploads/2022/01/icegif-180.gif)
+Although from a VDP, but I like this what I have received:
 
+
+![Screenshot_15-10-2024_233110_](https://github.com/user-attachments/assets/9397a289-e75d-4553-b90c-8ceeede59b57
 
 Whether you are a human or bot, it doesn't matter.<br>
 `rm-rf💣(￣_,￣ )`<br>
@@ -13,10 +15,7 @@ Looking to learn from developers, intermediate, experts or beginners. Learning n
 `cmd=whoami（*゜ー゜*）🧐`<br>
 Secured a health department websites belonging to Government of India from a major data breach, and secured some other websites belonging to the Government from multiple other security issues.<br>
 `<?php phpinfo(); ?>🤓`<br>
-Although from a VDP, but I like this what I have received:
 
-
-![Screenshot_15-10-2024_233110_](https://github.com/user-attachments/assets/9397a289-e75d-4553-b90c-8ceeede59b57)
 
 
 
@@ -26,6 +25,7 @@ Age is just a number. I am not even 16, yet I have such achievements in my bucke
 <br>
 BugCrowd Account: <a href="https://bugcrowd.com/RudraD">RudraD</a><br>
 
+![Hacker](https://www.icegif.com/wp-content/uploads/2022/01/icegif-180.gif)
 
 
 <br>
