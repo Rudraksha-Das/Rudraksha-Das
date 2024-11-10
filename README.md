@@ -1,6 +1,3 @@
-I guess this is enough to provide my identity:
-
-
 ![Screenshot_15-10-2024_233110_](https://github.com/user-attachments/assets/9397a289-e75d-4553-b90c-8ceeede59b57)
 
 Whether you are a human or bot, it doesn't matter.<br>
