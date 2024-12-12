@@ -16,7 +16,7 @@ Secured a health department websites belonging to Government of India from a maj
 
 
 
-Age is just a number. I am not even 16, yet I have such achievements in my bucket.<br>
+Age is just a number. So I have such achievements in my bucket.<br>
 `1 2 3 4 5 6 7 8 9 0`<br>
 => Hence Proved😎<br>
 <br>
