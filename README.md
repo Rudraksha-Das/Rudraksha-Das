@@ -1,1 +1,1 @@
-Nothing for bio as of now.
+Student, Chess player, independent security researcher, hardware enthusiast
