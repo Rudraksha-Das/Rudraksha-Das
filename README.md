@@ -1,1 +1,1 @@
-Student, Chess player, independent security researcher, hardware enthusiast
+Independent security researcher, llm redteaming, hardware enthusiast, chess player
